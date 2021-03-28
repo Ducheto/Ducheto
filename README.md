@@ -1,0 +1,2 @@
+- 👋 Hi, I’m Ducheto
+- 🌱 I’m currently learning .
